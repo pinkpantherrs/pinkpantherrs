@@ -1,25 +1,19 @@
-![IMG_6512](https://github.com/user-attachments/assets/055579b2-0b7f-4d11-a860-d64a95cdc189)
-<p align="center">hii !!</p>
-<p align="center">I love the cure</p>
+![IMG_6509](https://github.com/user-attachments/assets/4547221e-3e47-49ba-a3bc-3a143775c617)
+![IMG_6506](https://github.com/user-attachments/assets/28e3e810-3af8-47ff-bea1-079ef6a46660)
+![IMG_6507](https://github.com/user-attachments/assets/b5023eb6-44ed-4112-b13e-9c5110ac7807)
+![IMG_6508](https://github.com/user-attachments/assets/25f64420-2a63-44d3-958c-81b6a5d57dd0)
+![IMG_6505](https://github.com/user-attachments/assets/cd6d343b-92e7-4aba-8998-ab62d7de783b)
+![IMG_6504](https://github.com/user-attachments/assets/ce573480-b4cf-4cef-b3ad-78e608e3c718)
+![IMG_6503](https://github.com/user-attachments/assets/4251280b-a6d3-4ee0-996f-b507ac82e898)
+![IMG_6502](https://github.com/user-attachments/assets/859b3c5e-87d4-46ae-84f1-18b35bb4f359)
+![IMG_6516](https://github.com/user-attachments/assets/279541e4-b879-4386-bca1-2ca0dc762c5a)
+![IMG_6517](https://github.com/user-attachments/assets/1128ca42-ec76-4b25-8a74-83b607027b01)
+![IMG_6518](https://github.com/user-attachments/assets/a7096672-e0d3-4786-a5fa-974df66b7c97)
+![IMG_6519](https://github.com/user-attachments/assets/eacffc1b-98a6-469b-800c-55d4c5e64766)
+![IMG_6520](https://github.com/user-attachments/assets/3d9599bb-8d99-4d36-a6d4-e3b2fd4a9ae4)
+![IMG_6521](https://github.com/user-attachments/assets/85b7e74f-363e-4594-8808-cc6a577a3ab6)
+![IMG_6522](https://github.com/user-attachments/assets/356b329e-b6c1-49f1-b593-48f7be8beed7)
+![IMG_6523](https://github.com/user-attachments/assets/25b82762-1ebb-418b-a8fb-ca74e8294c7b)
+![IMG_6526](https://github.com/user-attachments/assets/045dcfe5-0945-48b6-9ffc-e1828a1d0d10)
+![IMG_6527](https://github.com/user-attachments/assets/ac1026bf-d2a6-4927-8cf6-3d9367fef624)
 
-![IMG_6504](https://github.com/user-attachments/assets/9206431d-677a-4b78-bd84-9f848c35da13) ![IMG_6503](https://github.com/user-attachments/assets/696a8b08-35b6-4784-b5de-930fe44214fa)![IMG_6506](https://github.com/user-attachments/assets/348c4014-688c-4cba-98bc-617366ef093f)
-
-
-
-
-
-<!--
-**milklover21/milklover21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...![IMG_6509](https://github.com/user-attachments/assets/bef67aea-7d25-4f8d-9381-e0751182b97b)
-
--->
