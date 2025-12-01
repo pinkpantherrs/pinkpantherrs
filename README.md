@@ -1,7 +1,10 @@
-<p align="center">gigi or cody</p>
+<div align="center">
+  
+ **gigi** ‎ ‎ or‎ ‎ ‎ *cody* ‎ ‎   
+    ‎‎    ![image](https://github.com/user-attachments/assets/e5f1b826-1f9b-4c9b-9b13-830fbdad2705)
 
 
-![image](https://github.com/user-attachments/assets/d15b716c-3ea0-48d1-a108-a020aa072bb4) 
- 
-<p align=center> byler is rotting my brain
-    
+<div align="center">
+byler is rotting my brain
+
+
