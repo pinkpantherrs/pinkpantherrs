@@ -11,7 +11,7 @@
 
   [rentry](https://rentry.co/coldshore)
 
- byler is rotting my brain <img width="30" height="30" alt="IMG_9286" src="https://files.catbox.moe/n116gd.jpeg" />
+ will byers is rotting my brain <img width="30" height="30" alt="IMG_9286" src="https://files.catbox.moe/n116gd.jpeg" />
 
 
 ![](https://komarev.com/ghpvc/?username=pinkpantherrs&color=green&style=flat-square)
