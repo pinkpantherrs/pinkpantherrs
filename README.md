@@ -2,7 +2,7 @@
 
   **gigi** ‎ ‎ or‎ ‎ ‎ *cody* ‎ ‎   
     ‎‎  
-    <img width="300" height="300" src="https://github.com/user-attachments/assets/e5f1b826-1f9b-4c9b-9b13-830fbdad2705"> 
+    <img width="300" height="300" src="https://github.com/user-attachments/assets/41896686-122a-411e-9e5a-5deef18d4af0"> 
     
 
 
