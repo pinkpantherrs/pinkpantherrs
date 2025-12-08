@@ -2,17 +2,13 @@
 
   **gigi** ‎ ‎ or‎ ‎ ‎ <ins>*cody*</ins>    
     ‎‎  
-    <img width="400" height="300" src="https://github.com/user-attachments/assets/41896686-122a-411e-9e5a-5deef18d4af0"> 
+    <img width="330" height="300" src="https://github.com/user-attachments/assets/41896686-122a-411e-9e5a-5deef18d4af0"> 
     
-
-
-
   [rentry](https://rentry.co/coldshore)
 
- will byers is rotting my brain <img width="30" height="30" alt="IMG_9286" src="https://files.catbox.moe/n116gd.jpeg" />
+ will byers is rotting my brain <img width="30" height="30" alt="IMG_9286" src="https://files.catbox.moe/n116gd.jpeg"/>
 
-
-![](https://komarev.com/ghpvc/?username=pinkpantherrs&color=green&style=flat-square)
+![profileview](https://komarev.com/ghpvc/?username=pinkpantherrs&color=green&style=flat-square)
 
 
 
