@@ -1,12 +1,11 @@
 <div align="center">
 
-  **gigi** ‎ ‎ or‎ ‎ ‎ *cody* ‎ ‎   
+  **gigi** ‎ ‎ or‎ ‎ ‎ <ins>*cody*</ins>    
     ‎‎  
-    <img width="300" height="300" src="https://github.com/user-attachments/assets/41896686-122a-411e-9e5a-5deef18d4af0"> 
+    <img width="400" height="300" src="https://github.com/user-attachments/assets/41896686-122a-411e-9e5a-5deef18d4af0"> 
     
 
 
-<div align="center">
 
   [rentry](https://rentry.co/coldshore)
 
