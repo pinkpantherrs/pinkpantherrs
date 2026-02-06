@@ -1,14 +1,15 @@
-<div align="center">
+<div align="center"><img width="1021" height="747" alt="IMG_2924" src="https://github.com/user-attachments/assets/b0283b07-3325-4636-b359-c2eae66ab468" />
+
 
   **gigi** ‎ ‎ or‎ ‎ ‎ <ins>*cody*</ins>    
-    ‎‎  
-    <img width="330" height="300" src="https://github.com/user-attachments/assets/41896686-122a-411e-9e5a-5deef18d4af0"> 
-    
+    ‎‎any prns   
   [rentry](https://rentry.co/coldshore)
 
- will byers is rotting my brain <img width="30" height="30" alt="IMG_9286" src="https://files.catbox.moe/n116gd.jpeg"/>
+ " a real life honest to god sorcerer! " 
 
 ![profileview](https://komarev.com/ghpvc/?username=pinkpantherrs&color=green&style=flat-square)
+
+<img width="30" height="30" alt="IMG_9286" src="https://files.catbox.moe/n116gd.jpeg"/>
 
 
 
