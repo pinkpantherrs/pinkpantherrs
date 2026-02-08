@@ -11,7 +11,7 @@
 
 ![profileview](https://komarev.com/ghpvc/?username=pinkpantherrs&color=green&style=flat-square)
 
-<img width="30" height="40" alt="IMG_9286" src="https://github.com/user-attachments/assets/832463e7-bb53-43e5-8699-dbb08cb97312"/>
+<img width="40" height="40" alt="IMG_9286" src="https://github.com/user-attachments/assets/832463e7-bb53-43e5-8699-dbb08cb97312"/>
 
 
 
