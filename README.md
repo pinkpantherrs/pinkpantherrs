@@ -1,19 +1,16 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=pinkpantherrs&label=views&style=plastic&color=AEB35D&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=pinkpantherrs&label=views&style=plastic&color=669C47&abbreviated=true)
  
  **cody** ‎ ‎ or‎ ‎ ‎ <ins>*gigi*</ins>    
  
-   <div align="center"><img width="300" height="300" alt="IMG_2924" src="https://github.com/user-attachments/assets/b0283b07-3325-4636-b359-c2eae66ab468" />
+![IMG_4994](https://github.com/user-attachments/assets/09ba52c8-c4e6-4a66-9d14-2202d6f9eca5)
+
+  
+
    
  
- [rentry](https://rentry.co/coldshore)                                                                               
-
- " a real life honest to god sorcerer! " 
-
-
-
-<img width="40" height="40" alt="IMG_9286" src="https://github.com/user-attachments/assets/832463e7-bb53-43e5-8699-dbb08cb97312"/>
+ [<ins>*rentry*](https://rentry.co/coldshore)                                                                               
 
 
 
