@@ -10,7 +10,7 @@
 
    
  
- [<ins>*rentry*](https://rentry.co/coldshore)                                                                               
+ [<ins>*rentry*](https://rentry.co/coldshore)    ![]() [<ins>*ata*](https://coldshore.atabook.org)   ![]() [<ins>*strawpage*]( https://girllikeme.straw.page)                                                                     
 
 
 
