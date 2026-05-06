@@ -4,7 +4,7 @@
  
  **cody** ‎ ‎ or‎ ‎ ‎ <ins>*gigi*</ins>    
  
- <img width="400" height="200" alt="IMG_9326" src="https://github.com/user-attachments/assets/30a62b69-7022-4bee-9c82-fd01cf7d61de" />
+ <img width="400" height="280" alt="IMG_6007" src="https://github.com/user-attachments/assets/33323557-2a10-4ab4-844c-a0e45210ee08" />
 
   [<ins>*rentry*](https://rentry.co/coldshore)    ![]() [<ins>*ata*](https://coldshore.atabook.org)   ![]() [<ins>*strawpage*]( https://girllikeme.straw.page)
 
