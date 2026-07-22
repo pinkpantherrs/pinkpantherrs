@@ -4,9 +4,10 @@
  
  **cody** ‎ ‎ or‎ ‎ ‎ <ins>*gigi*</ins>    
  
- <img width="300" height="215" alt="IMG_7923" src="https://github.com/user-attachments/assets/80ce5c8b-e059-4753-a332-016b809eaeb1" />
+<img width="290" height="215" alt="F68E6079-4F43-4673-B1C5-45F89C63DF4C" src="https://github.com/user-attachments/assets/80536b8f-5c97-4c28-9d63-3566453df267" />
 
   [<ins>*rentry*](https://rentry.co/coldshore)    ![]() [<ins>*ata*](https://coldshore.atabook.org)   
+
 
 
 
